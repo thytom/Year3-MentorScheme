@@ -1,0 +1,7 @@
+- Aidan/Archie - Discord
+- Josh/Luka - Engagement leads
+- Jacob - Quizzes
+- Josh - Survey/Feedback
+- Luke - YII
+- Kobe - Second year/ningbo connectinos
+- Lewis - omni-mentor
